@@ -2,7 +2,7 @@
 
 Meu nome é Giovanna
 
-Sou estudantr do Senai - Dev
+Sou estudante do Senai - Dev
 
 ### Você entrar em contato comigo📧
 
